@@ -1,3 +1,5 @@
+![MasterHead](https://i.pinimg.com/originals/b1/8d/c0/b18dc07fac81e4a6b6d69c8a92fe3aa2.jpg)
+
 <h1 align="center">Hi 👋, I'm Ceren Parmaksız</h1>
 <h3 align="center">Fourth Year Computer Science & Engineering Student</h3>
 
