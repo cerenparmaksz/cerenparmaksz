@@ -11,7 +11,6 @@
 
 - 📫 How to reach me **cerenparmaksz2@gmail.com**
 
-- 📄 Know about my experiences [https://flowcv.com/resume/lo144h7ud5](https://flowcv.com/resume/lo144h7ud5)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
